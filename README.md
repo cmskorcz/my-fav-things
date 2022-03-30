@@ -1,1 +1,1 @@
-# List of Nathans's Favorite Things
+# List of Nathan's Favorite Things
